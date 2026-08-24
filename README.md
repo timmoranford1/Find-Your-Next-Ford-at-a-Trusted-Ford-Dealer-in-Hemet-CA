@@ -10,5 +10,5 @@ Car ownership is also dependent on reliable maintenance. Easy access to Ford ser
 
 For Hemet residents, shopping locally can also mean having the dealership close by when issues about maintenance, repairs or plans for the future occur. If you're buying your first Ford or upgrading your existing vehicle, or seeking an affordable used vehicle, making sure you compare the models available and inventory will assist you in making a shrewd choice.
 
-If you're looking to look into your options, stop by Tim Moran Ford in Hemet, CA. Explore the available cars, research the options for financing and trade-in, or contact the staff at the dealership to move to find an Ford that is perfect for your needs.
+If you're looking to look into your options, stop by Tim Moran Ford in Hemet, CA. Explore the available cars, research the options for financing and trade-in, or contact the staff at the dealership to move to find an Ford that is perfect for your needs. Call us today at 951-417-5306
 
